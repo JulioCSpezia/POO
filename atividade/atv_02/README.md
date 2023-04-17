@@ -1,6 +1,4 @@
 julio Cesar Spezia 3°INF Nelson Bellincanta Filho
-
-Julio Cesar Spezia 3° INF
 Nelson Bellincanta Filho
 
 Atv02
